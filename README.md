@@ -1,0 +1,2 @@
+# kendilwesi
+MANUSIA BIASA
